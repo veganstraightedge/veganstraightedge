@@ -1,5 +1,4 @@
-# Shane Becker
-## @veganstraightedge
+# Shane Becker // @veganstraightedge
 
 ***
 
